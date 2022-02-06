@@ -1,1 +1,1 @@
-# NyandePaul.github.io
+# Nyande.github.io
